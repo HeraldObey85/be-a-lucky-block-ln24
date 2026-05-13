@@ -1,4 +1,4 @@
-#  
+#  professional Script for be a lucky block is the best be a lucky block Script, featuring undetectable and custom skins. Safe and powerful for all your
 
 
 
